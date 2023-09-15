@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @penj1on
+- 👀 I’m interested in Malware
+- 🌱 I’m currently learning How to make one
+- 💞️ I’m looking to collaborate on fr4ctalz & Pankoza
+- 📫 How to reach me? Youtube & Discord
